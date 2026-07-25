@@ -1,0 +1,3 @@
+# direito_constitucional
+links uteis.:
+*** aula 1.: https://videoaulas.infra.grancursosonline.com.br/564afe295161b94c3dcc76ab8ec071b3/f3908db3a0ea39772b532e96f342cb80/f3908db3a0ea39772b532e96f342cb80-p480.mp4?Expires=1784991040&Signature=HYrP2DWvBvZZJL2HbrkKl15LhNxvm1WFWp-ievSLp7uS5y8dRUoSTAfeWElN23uefXcsnXXZ9qje3OAV1RDChczi~~95CgoaF0s9PVGptpP45rE3t4zDS-uRv1UBnPy2dKAc6EjWVvnQXpwQkWEH2W~~9l-Ethyu0eOgxxtRRypoH0BxhIrs7NhKdLJFeMrQS29OE-xDBxAp8ZcdaMFeMuttSCHibPdaDejoVJjzEwujYbZKNKgChj7g9~oDKJsaoQaJZzYc~lW0W0APYZ~5MyiCqDXYFcYDXFZucBg8Pamwd~YrCzCRsn~akJRQL~BG6c0hMhMR1kwkLscplDlM0A__&Key-Pair-Id=APKAJWDRH5QWMLF2KNSA
